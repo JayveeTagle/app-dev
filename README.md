@@ -1,4 +1,4 @@
-### My Favorite Movie Series
+### My Favorite Movie/Series
 
 | Movie| Series |
 | ----------- | ----------- |
